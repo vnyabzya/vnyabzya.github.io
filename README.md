@@ -1,1 +1,0 @@
-# vnyabzya.github.io
